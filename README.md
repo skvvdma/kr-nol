@@ -1,3 +1,3 @@
 # kr-nol
 krestiki-noliki
-https://sokovdddd.github.io/kr-nol/
+https://skvvdma.github.io/kr-nol/
